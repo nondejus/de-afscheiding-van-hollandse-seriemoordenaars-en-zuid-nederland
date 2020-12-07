@@ -1,1 +1,1 @@
-# dw-scheiding-van-hollandse-seriemoordenaars-en-zuid-nederland
+# de-scheiding-van-hollandse-seriemoordenaars-en-zuid-nederland
